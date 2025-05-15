@@ -1,94 +1,60 @@
----
+# 🍽️ 𝗕𝗮𝗸𝗵𝘀𝗵 𝗙𝗮𝘀𝘁 𝗙𝗼𝗼𝗱𝘀
 
-✨ About Bakhsh Fast Foods
-
-Welcome to Bakhsh Fast Foods, where passion meets flavor in every plate we serve. Located conveniently at Non-AC Stop (near Daewoo Stop), Super Chowk, Lodhran, we are your go-to destination for satisfying, affordable, and delicious fast food.
-
-We believe that good food brings people together, and that’s exactly what we aim to do—one plate at a time. Whether you're grabbing a quick lunch or treating your friends and family, we guarantee a delightful experience every time.
-
+*𝘾𝙧𝙖𝙫𝙞𝙣𝙜 𝙨𝙤𝙢𝙚𝙩𝙝𝙞𝙣𝙜 𝙙𝙚𝙡𝙞𝙘𝙞𝙤𝙪𝙨?*  
+𝗟𝗼𝗼𝗸 𝗻𝗼 𝗳𝘂𝗿𝘁𝗵𝗲𝗿! 𝗕𝗮𝗸𝗵𝘀𝗵 𝗙𝗮𝘀𝘁 𝗙𝗼𝗼𝗱𝘀 𝘀𝗲𝗿𝘃𝗲𝘀 𝗺𝗼𝘂𝘁𝗵-𝘄𝗮𝘁𝗲𝗿𝗶𝗻𝗴 𝗱𝗲𝗹𝗶𝗴𝗵𝘁𝘀 𝘁𝗵𝗮𝘁 𝘄𝗶𝗹𝗹 𝘁𝗮𝗻𝘁𝗮𝗹𝗶𝘇𝗲 𝘆𝗼𝘂𝗿 𝘁𝗮𝘀𝘁𝗲 𝗯𝘂𝗱𝘀.
 
 ---
 
-🍛 Our Signature Dishes
+## 🌟 𝗢𝘂𝗿 𝗦𝗽𝗲𝗰𝗶𝗮𝗹𝘁𝗶𝗲𝘀
 
-At Bakhsh Fast Foods, we keep things simple and tasty. Our compact menu focuses on what we do best:
+- **𝗞𝗮𝗿𝗮𝗰𝗵𝗶 𝗕𝗶𝗿𝘆𝗮𝗻𝗶** – 𝗦𝗽𝗶𝗰𝗲𝗱 𝘁𝗼 𝗽𝗲𝗿𝗳𝗲𝗰𝘁𝗶𝗼𝗻.  
+  *𝗣𝗿𝗶𝗰𝗲: 𝗥𝘀. 𝟭𝟱𝟬 𝗽𝗲𝗿 𝗽𝗹𝗮𝘁𝗲*
 
-1. Karachi Biryani
-
-Spiced to perfection and infused with authentic Karachi-style flavor, our biryani is a customer favorite. Prepared fresh daily with premium rice, tender meat, and a blend of secret spices.
-Only Rs. 150 per plate
-
-2. Crispy French Fries
-
-Golden, crunchy, and seasoned just right—our fries are the perfect snack or side dish to complete your meal.
-Only Rs. 50 per plate
-
+- **𝗙𝗿𝗲𝗻𝗰𝗵 𝗙𝗿𝗶𝗲𝘀** – 𝗖𝗿𝗶𝘀𝗽𝘆 & 𝗴𝗼𝗹𝗱𝗲𝗻.  
+  *𝗣𝗿𝗶𝗰𝗲: 𝗥𝘀. 𝟱𝟬 𝗽𝗲𝗿 𝗽𝗹𝗮𝘁𝗲*
 
 ---
 
-🚚 Fast & Free Delivery
+## 🛵 𝗙𝗿𝗲𝗲 𝗗𝗲𝗹𝗶𝘃𝗲𝗿𝘆
 
-Don’t feel like stepping out? No problem! We offer free delivery within the Lodhran city area. Hot, fresh, and fast—right to your doorstep.
-
-
----
-
-💸 Easy Payment Options
-
-Pay the way you prefer!
-
-JazzCash: 03013366916 (Riaz Ahmad)
-We believe in making the food experience as convenient as possible, from order to delivery to payment.
-
-
+𝗢𝗿𝗱𝗲𝗿 𝗳𝗿𝗲𝘀𝗵, 𝗵𝗼𝘁 𝗳𝗼𝗼𝗱 𝗿𝗶𝗴𝗵𝘁 𝘁𝗼 𝘆𝗼𝘂𝗿 𝗱𝗼𝗼𝗿. 𝗔𝘃𝗮𝗶𝗹𝗮𝗯𝗹𝗲 𝗶𝗻 𝗟𝗼𝗱𝗵𝗿𝗮𝗻 𝗰𝗶𝘁𝘆.
 
 ---
 
-📞 Place Your Order Now
+## 💸 𝗣𝗮𝘆𝗺𝗲𝗻𝘁 𝗢𝗽𝘁𝗶𝗼𝗻
 
-Hungry? Call or message us now:
-
-Phone: 03013366916
-
-WhatsApp: Order Now on WhatsAppYou can also reach out for bulk or party orders—we’re happy to serve!
-
+- **𝗝𝗮𝘇𝘇𝗖𝗮𝘀𝗵**: `03013366916` *(Riaz Ahmad)*
 
 ---
 
-📍 Location
+## 📍 𝗟𝗼𝗰𝗮𝘁𝗶𝗼𝗻
 
-Bakhsh Fast Foods
-Non-AC Stop (Near Daewoo Stop)
-Super Chowk, Lodhran
-Open Daily: 11:00 AM – 11:00 PM
-
+𝗡𝗼𝗻-𝗔𝗖 𝗦𝘁𝗼𝗽 (𝗻𝗲𝗮𝗿 𝗗𝗮𝗲𝘄𝗼𝗼 𝗦𝘁𝗼𝗽)  
+𝗦𝘂𝗽𝗲𝗿 𝗖𝗵𝗼𝘄𝗸, 𝗟𝗼𝗱𝗵𝗿𝗮𝗻  
+**𝗧𝗶𝗺𝗶𝗻𝗴**: 𝟭𝟭:𝟬𝟬 𝗔𝗠 – 𝟭𝟭:𝟬𝟬 𝗣𝗠 𝗗𝗮𝗶𝗹𝘆
 
 ---
 
-🌐 Stay Connected
+## 📞 𝗢𝗿𝗱𝗲𝗿 𝗡𝗼𝘄
 
-Explore more or check updates through our website:
-bakhshfoods.github.io
-
-
----
-
-Why Choose Us?
-
-Fresh ingredients, always.
-
-Budget-friendly prices.
-
-Friendly, fast service.
-
-Local favorite with a growing fanbase.
-
-
+- **𝗣𝗵𝗼𝗻𝗲**: [𝘾𝙖𝙡𝙡 𝙉𝙤𝙬](tel:03013366916)  
+- **𝗪𝗵𝗮𝘁𝘀𝗔𝗽𝗽**: [𝗖𝗹𝗶𝗰𝗸 𝘁𝗼 𝗢𝗿𝗱𝗲𝗿](https://wa.me/923013366916)
 
 ---
 
-Bakhsh Fast Foods – The taste that brings you back!
-Serving happiness one plate at a time.
+## 🌐 𝗢𝘂𝗿 𝗪𝗲𝗯𝘀𝗶𝘁𝗲
 
+[𝗯𝗮𝗸𝗵𝘀𝗵𝗳𝗼𝗼𝗱𝘀.𝗴𝗶𝘁𝗵𝘂𝗯.𝗶𝗼](https://bakhshfoods.github.io)
+
+---
+
+## 🛠️ 𝗕𝘂𝗶𝗹𝘁 𝗪𝗶𝘁𝗵
+
+- HTML5 & CSS3  
+- GitHub Pages
+
+---
+
+**𝗕𝗮𝗸𝗵𝘀𝗵 𝗙𝗮𝘀𝘁 𝗙𝗼𝗼𝗱𝘀 – 𝗧𝗮𝘀𝘁𝗲 𝘁𝗵𝗮𝘁 𝗯𝗿𝗶𝗻𝗴𝘀 𝘆𝗼𝘂 𝗯𝗮𝗰𝗸!**
 
 ---
