@@ -57,19 +57,19 @@
 *𝗕𝗮𝗸𝗵𝘀𝗵 𝗙𝗮𝘀𝘁 𝗙𝗼𝗼𝗱𝘀 – 𝗧𝗵𝗲 𝗧𝗮𝘀𝘁𝗲 𝗧𝗵𝗮𝘁 𝗕𝗿𝗶𝗻𝗴𝘀 𝗬𝗼𝘂 𝗕𝗮𝗰𝗸!*
 
 ---
-## 💥***Get ready to awaken your taste buds like never before, because a whole new world of flavor is about to open its doors! From sizzling street-style delights to mouthwatering gourmet meals, our food point is not just a place to eat—it’s a destination to experience love, laughter, and the joy of unforgettable food, served fresh and full of passion every single day!”***💫
+## 💥**Get ready to awaken your taste buds like never before, because a whole new world of flavor is about to open its doors! From sizzling street-style delights to mouthwatering gourmet meals, our food point is not just a place to eat—it’s a destination to experience love, laughter, and the joy of unforgettable food, served fresh and full of passion every single day!”**💫
 
 
 ---
-## 🥀***“Step into a world where every dish is a masterpiece, every ingredient handpicked, and every bite tells a story—our food point is a celebration of fine taste, warm hospitality, and culinary excellence designed to bring comfort, class, and a burst of flavor to your plate.”***🥘
+## 🥀**“Step into a world where every dish is a masterpiece, every ingredient handpicked, and every bite tells a story—our food point is a celebration of fine taste, warm hospitality, and culinary excellence designed to bring comfort, class, and a burst of flavor to your plate.”**🥘
 
 
 ---
-## 🔴***“Calling all foodies! The wait is over—your new favorite food hub is here, blending taste, vibe, and Insta-worthy bites in a setting made for hangouts, cravings, and flavor-packed adventures. Come for the food, stay for the experience!”***🔥
+## 🔴**“Calling all foodies! The wait is over—your new favorite food hub is here, blending taste, vibe, and Insta-worthy bites in a setting made for hangouts, cravings, and flavor-packed adventures. Come for the food, stay for the experience!”**🔥
 
 
 ---
-## 💨***“More than just a food point, we’re your second kitchen, your comfort corner, and your go-to place for food made with heart. From traditional favorites to creative twists, every meal is cooked with love, served with a smile, and meant to feel just like home.”***☄️
+## 💨**“More than just a food point, we’re your second kitchen, your comfort corner, and your go-to place for food made with heart. From traditional favorites to creative twists, every meal is cooked with love, served with a smile, and meant to feel just like home.”**☄️
 
 
 ---
